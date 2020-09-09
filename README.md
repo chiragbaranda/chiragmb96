@@ -1,6 +1,6 @@
 ### Hi there 👋, Chirag Baranda, Here!
 #### Seeking for Full time opportutnity as Technical Support Specialist | Web Developer
-![Seeking for Full time opportutnity as Technical Support Specialist | Web Developer](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
+![Seeking for Full time opportutnity as Technical Support Specialist | Web Developer](https://cdn.pixabay.com/photo/2018/09/27/09/18/web-3706551_960_720.jpg)
 
 Resourceful entry-level technical specialist committed to performing assigned tasks while working in a fast-paced environment. A recent graduate student from Mohawk College with an 80 GPA with experience of technical support specialist - L2 at Canadian Tire Financial Services. Highly adept in systems analysis diagnostics and troubleshooting and conflict resolution. Exhibits excellent organizational and problem-solving skills. Works well in team environments and displays a strong work ethic.
 
